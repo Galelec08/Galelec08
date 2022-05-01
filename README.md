@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Galelec08
+- 👀 I'm automatician. 
+- It's the first time i work with a raspberry. 
+- I want to share information .
